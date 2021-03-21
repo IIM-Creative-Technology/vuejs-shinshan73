@@ -1,0 +1,2 @@
+j'ai creer un nouveau repository pour rendre le projet final avec mon camarade Sebastien Couchard on a fais le travail a 2 
+J'avais fais un repository mais c'était pour moi tout seul du coup j'ai supprimer j'ai creer celui la pr rendre en groupe.
